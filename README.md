@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @silicon-carnival
 - 👀 I’m interested in volumetric displays, pcb fabrication
-- 🌱 I’m currently learning to use my feet.
+- 🌱 I’m currently learning to use my feet to make mustard.
 - 💞️ I’m looking to collaborate on hot-dogs
 - 📫 How to reach me ...
 - 😄 Pronouns: ... we/us
